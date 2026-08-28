@@ -1,0 +1,1 @@
+# 2026-08-29_sciama_gothic_metric_bottom_up_etherodynamics_v1.0
